@@ -10,7 +10,7 @@ Selamat datang teman-teman prakom, calon prakom di iPrakom Indonesia. Di sini se
 
 Selain web iPrakom ini, kita juga punya beberapa kanal lainnya. Salah satunya adalah Group WA iPrakom Nasional yang saat ini **Full tank** alias "Fenuuuh". Sebagai tindak lanjut, sudah dibuat beberapa Group WA regional. yang sudah jelas sih Regional Jateng & DIY, Sumatera. Jawa Timur sudah banyak, cuman untuk regionalnya kurang tahu apakah sudah ada belum.
 
-Dan so pasti, kanal utama kita adalah FB Group iPrakom yang ada di alamat [Facebook Prakom](http://bit.ly/fbprakom).
+Dan so pasti, kanal utama kita adalah FB Group iPrakom yang ada di alamat [Facebook Prakom](http://bit.ly/fbprakom).<a name='more'></a>
 
 FYI, iPrakom kan rencana mau jadi organisasi profesi ke depan nih. Kita sudah pernah nyusun **AD/ART**-nya logh, silahkan sempatkan mampir buat yang baru gabung. Biar tahulah, barangkali ada masukan : [Draft Prakom](http://bit.ly/draftprakom)
 
